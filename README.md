@@ -7,4 +7,4 @@ Created from scratch.
 > HTML5
 > CSS3
 
-![](/img/AcrylicPaintingGallery.gif)
+![](/img/ezgif.com-video-to-gif.gif)
